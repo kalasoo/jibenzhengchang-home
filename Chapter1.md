@@ -3,7 +3,7 @@
 ### 3:00PM
 
 <aside>
-📣 ***Destination 每月第三个周五晚 —— 猎熊日***
+📣 *Destination 每月第三个周五晚 —— 猎熊日*
 
 - *票价：¥100/人*
 - *Gogo boy：Anthony, Owen, Rico, …*
