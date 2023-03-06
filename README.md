@@ -2,8 +2,8 @@
 
 连载：
 
-- https://jibenzhengchang.com
-- https://instagram.com/jibenzhengchang
+- [Home](https://jibenzhengchang.com)
+- [Instagram](https://instagram.com/jibenzhengchang)
 
 
 阅读：
