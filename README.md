@@ -3,7 +3,7 @@
 连载：
 
 - [Home](https://jibenzhengchang.com)
-- [Instagram](https://instagram.com/jibenzhengchang)
+- [Instagram @jibenzhengchang](https://instagram.com/jibenzhengchang)
 
 
 阅读：
