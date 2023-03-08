@@ -1,5 +1,3 @@
-### 《基本正常》
-
 连载：
 
 - [Home](https://jibenzhengchang.com)
